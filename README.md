@@ -19,9 +19,11 @@
 ## 𝓓𝓘𝓢𝓛𝓘𝓚𝓔𝓢 ;
 > і ძ᥆ᥒ'𝗍 rᥱᥲᥣᥣᥡ ᥣіkᥱ ᑲᥱіᥒg ᥲᥣ᥆ᥒᥱ. ᥲᥣᥣ іᥒ ᥲᥣᥣ, ᑲᥙ𝗍 і𝖿 ᥲᥒᥡ𝗍һіᥒg—і'm 𝖿іᥒᥱ ᥕі𝗍һ ᥕһᥲ𝗍ᥱ᥎ᥱr ᥲs ᥣ᥆ᥒg ᥲs 𝗍һᥱ ⍴ᥱ᥆⍴ᥣᥱ 𝗍ᥱᥣᥣ mᥱ ᥕһᥡ ^^
 
-![Loading Animation](https://static.klipy.com/ii/8ce8357c78ea940b9c2015daf05ce1a5/e4/e2/rRJhp4fu.gifhttps://static.klipy.com/ii/40242aa776a8322b6e7934df737fa2a6/6e/b2/XNJZd0AF.gif)
+![Loading Animation](https://static.klipy.com/ii/4e7bea9f7a3371424e6c16ebc93252fe/2c/58/s2cCZCi3DzwIuGRZRrhN.gif)
 
 ## ⁀↘‿↗⁀↘‿↗⁀↘‿↗⁀↘‿↗⁀↘‿↗⁀↘‿↗⁀
+
+![Loading Animation](https://static.klipy.com/ii/4e7bea9f7a3371424e6c16ebc93252fe/37/1f/CxTB8rBOEgy9i.gif)
 
 # 𝕎𝔸ℕ𝕋 𝕋𝕆 𝕂ℕ𝕆𝕎 𝕄𝕆ℝ𝔼? :
 [Link Text](https://officiallyelsodary.straw.page/)
