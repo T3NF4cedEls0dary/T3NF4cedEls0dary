@@ -1,4 +1,4 @@
-![Animated Title](https://static.klipy.com/ii/7607a26399874a14744aa5e7accfa062/73/38/OeJ7OrM8.gif)
+![Animated Title](https://static.klipy.com/ii/f87f46a2c5aeaeed4c68910815f73eaf/f5/54/ohE5B9DG.gif)
 
 ### ᴠᴏʟᴜᴍᴇ : ▮▮▮▮▮▮▯▯▯
 
@@ -23,7 +23,7 @@
 
 ## ⁀↘‿↗⁀↘‿↗⁀↘‿↗⁀↘‿↗⁀↘‿↗⁀↘‿↗⁀
 
-![Loading Animation](https://static.klipy.com/ii/4e7bea9f7a3371424e6c16ebc93252fe/37/1f/CxTB8rBOEgy9i.gif)
+![Loading Animation](https://static.klipy.com/ii/4493325008d34b7bf8cd6813cd5c1619/e9/d0/HHcd3AUS22IOZ6p.gif)
 
 # 𝕎𝔸ℕ𝕋 𝕋𝕆 𝕂ℕ𝕆𝕎 𝕄𝕆ℝ𝔼? :
 [Link Text](https://officiallyelsodary.straw.page/)
