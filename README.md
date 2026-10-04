@@ -3,7 +3,8 @@
 ### ᴠᴏʟᴜᴍᴇ : ▮▮▮▮▮▮▯▯▯
 
 ``"հí! ᥡ᥆ᥙ ᥴᥲᥒ ᥴᥲᥣᥣ mᥱ,,``
-## 𝐋𝐞𝐞 ᵒʳ 🄴🅄🅁🄴🅂🄴🄸/𝖲𝖺𝗂!"
+## 𝐋𝐞𝐞 ᵒʳ 🄴🅄🅁🄴🅂🄴🄸/𝖲𝖺𝗂!
+
 ![Loading Animation](https://static.klipy.com/ii/4e7bea9f7a3371424e6c16ebc93252fe/23/46/gwLaJYGoH9vTOUyK.gif)
 
 `𝑰 𝒂𝒎 𝒋𝒖𝒔𝒕 𝒔𝒐𝒎𝒆𝒐𝒏𝒆 𝒘𝒉𝒐 𝒍𝒊𝒌𝒆𝒔 𝒕𝒐 𝒃𝒐𝒕𝒉𝒆𝒓 𝒑𝒆𝒐𝒑𝒍𝒆!`
@@ -22,7 +23,7 @@
 
 ![Loading Animation](https://static.klipy.com/ii/4e7bea9f7a3371424e6c16ebc93252fe/7a/56/eGtOXZOCOZtq.gif)
 
-## ⁀↘‿↗⁀↘‿↗⁀↘‿↗⁀↘‿↗⁀↘‿↗⁀↘‿↗⁀
+## ⁀↘‿↗⁀↘‿↗⁀↘‿↗⁀↘‿↗
 
 ![Loading Animation](https://static.klipy.com/ii/4493325008d34b7bf8cd6813cd5c1619/e9/d0/HHcd3AUS22IOZ6p.gif)
 
